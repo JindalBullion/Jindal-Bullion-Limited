@@ -1,2 +1,6 @@
 # Jindal-Bullion-Limited
-Jindal Bullion Ltd. is a group of Jewelers who are trusted suppliers of gold and silver. The company connects with Multinational Banks, Refiners and suppliers. They are the pioneers when it comes to selling gold and silver bullion. Jindal Bullion offer gold and silver coins and bars at best market rates. The company is based in Delhi, India and is registered with all the departments related to the trade. Jindal Bullion strives hard to provide their clients with certified gold and silver products. Jindal Bullion have the buyback policy that ensures the purity of the products.
+Jindal Bullion Limited: One of the leading Gold/Silver Bullion dealers in Delhi, India. We deal in precious metals like gold and silver.
+The most important thing is you have to pay only 5% to book your gold online and sell it when price goes up.
+We provide our client a best trading platform so that they can trade as well. 
+We provide live gold and silver price. You have to keep your eyes on our websites and check when gold/silver price hikes so that you can easily trade (Sell/Purchase) 
+You really get good Returns on Investment (ROI) while dealing with us.
